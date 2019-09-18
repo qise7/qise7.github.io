@@ -3,7 +3,7 @@ layout:     post
 title:      Hello world
 subtitle:   测试
 date:       2019-9-18
-author:     
+author:     七色
 header-img: img/1bg.jpg
 catalog: true
 tags:
