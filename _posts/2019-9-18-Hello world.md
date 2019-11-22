@@ -17,6 +17,6 @@ tags:
 
 >测试
 
-<p><a href="www.baidu.com">测试</a></p>
+<p><a href="http://www.baidu.com">测试</a></p>
 
 <strong>测试</strong>
