@@ -130,8 +130,6 @@ tags:
 
 <p>个人猜测也许又是光辉同盟给修巴鲁特整的...三人组也找不到修巴鲁特任何踪迹，只能认定修巴鲁特自爆了。</p>
 
-![](https://svoorq.dm.files.1drv.com/y4mBc-nydRsFONgRZY1PHOl8i3OpYZv5iAbnw6QlVTlyQZNifBBVlQ_Vj6Qwqd4Jq3xS0OH4FbR6fXkWaDOpdOeoJa3VB1fY1JSjj-8HxKjYas9I9rEfOU3jTiZty6J-4lb7rcoYqCovqhXzIpsPBuaLS4mrm7NJzROijrvq3baxKnqjtROZH2maIQNKQPtOsNr56EJ67Bkj9isq434epFOww?width=1024&height=580&cropmode=none)
-
 <p>在修巴鲁特死亡两周前后，教团和修巴鲁特都没动静了。运转资金也筹备得差不多了，当晚，卢卡生田宗助斯特莱克斯四人约了在酒吧探讨卢卡出国事宜。决定明日出发后，生田立马唤来了冬美让讲相关事宜，首先要保证一直联络和会驾驶自走兵器的人，结果居然是四之宫小町???生田还来句外面国家确实很危险，但在他那车里也许会比在国内还安全???最后唠叨几句后就没了，七章结束。 </p>
 
 ![](https://dsm01pap004files.storage.live.com/y4m1-MpbO8aqH3ugJ3P1JBQ6whBlrbJrz1KI7KmH64F6d03lR7MDpsivnONeJRzxMulcHsUyEmTCdawRNOyq6Z2mEiGCWr1GD10HOzx9wyI5LvCVrmySjRI9HwFfpLZajR1PPdPefh9GcB34QjIvoDxsRQTR_lp3PQKea1jkhxYQF6DGDxq9levnTFQjVewt2eO?width=2340&height=1080&cropmode=none)
