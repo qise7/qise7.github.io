@@ -27,7 +27,7 @@ tags:
 
 <p>但不知道为什么火龙目标是梅露，危难之际卢卡好像感觉了什么，爆发出超越极限的能力打败了龙</p>
 
-![](https://dsm01pap004files.storage.live.com/y4mCXUQxzc47XZgX9uMWr232XjQf2eGX7L9zYVd47BNihBxI6xl8dcK1zMqAWcKjLt_ElKJ5JRd4wec-7QM_FUy1d9t8SuWkyR9AyC8mVULICrgmUD1Gsg2RZ6dHIup-CQ_qX3KmPBF0WZy_Prt9PFKeoNysjqBMtq6QqaPbrNLJla3ioB3sUlQXCPaDudwEwac?width=2340&height=1080&cropmode=none)
+![](https://dsm01pap004files.storage.live.com/y4mbZ_iMY2zQnTZn3WCvSqOE7q3vPjoJYYUnf9cS4p5ATS9tN589Bcagvw5FTJjk5wAVFh43_qxQH533-zAdBYgFSfMPC27XEPy2ceMg6iPf-f0SxpBEb58XHFNzgZswrZk-uAQ8llKIkDLKE4MmKIwprUKW4hhV05BT03DuW0bc4Cw5VxN_XhgJfeTdH2oKzGX?width=2340&height=1080&cropmode=none)
 
 <p>最后就剩个裸体黑皮妹躺在那，没看到外伤猜测是她变成龙的(以后简称龙妹)。第一章结束</p>
 
