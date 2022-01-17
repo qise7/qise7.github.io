@@ -4,7 +4,7 @@ title:      懒狗时隔多年了，心血来潮写篇流星页游:流星ワー�
 subtitle:   
 date:       2022-1-17
 author:     Caren七色
-header-img: img/流星SW.JPG
+header-img: img/流星SW.jpg
 catalog: true
 tags:
     - 黄油
