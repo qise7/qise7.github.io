@@ -134,7 +134,6 @@ tags:
 
 ![](https://dsm01pap004files.storage.live.com/y4m1-MpbO8aqH3ugJ3P1JBQ6whBlrbJrz1KI7KmH64F6d03lR7MDpsivnONeJRzxMulcHsUyEmTCdawRNOyq6Z2mEiGCWr1GD10HOzx9wyI5LvCVrmySjRI9HwFfpLZajR1PPdPefh9GcB34QjIvoDxsRQTR_lp3PQKea1jkhxYQF6DGDxq9levnTFQjVewt2eO?width=2340&height=1080&cropmode=none)
 
-## 
 <p>我个人观感还是可以的，op做得也还行，如果不是页游我觉得也算正篇op了。希望衣笠能尽快填好第三部和页游主线。</p>
 
 >流星bd准备上架steam了，支持官中，有钱的朋友支持一下吧！！！
