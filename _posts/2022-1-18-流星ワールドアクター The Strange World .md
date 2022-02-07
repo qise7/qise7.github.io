@@ -158,7 +158,7 @@ tags:
 
 ![](https://dsm01pap004files.storage.live.com/y4mv2Ne5fdPwZ7R6ABJ1XQik2G80PgEHGVJXyQ36fI62sZdLQb_fglg09uRkiN4YKsovh00zxINz3j2DqKYf4RkZ58gN2E3SK6OrjaUimWIfIJKA5ElFwWaeOgbKS0TXt4CQKgDO_eiOq7QUpeVCghdDeh5vEYd7DT82UYsh1hDMLVJ1VsM8Ect9W7k97_FSU3H?width=1275&height=709&cropmode=none)
 
-<p>牧民透露德鲁迦是被某些人通过比奥兹更大的车来搬运，让众人吃了一惊，居然还能搬运活的德鲁迦。之后卢卡要求牧民带路到看到德鲁迦搬运的地点，牧民表示可以但要送他回家。</p>
+<p>牧民说曾目击德鲁迦是被某些人通过比奥兹更大的车来搬运，让众人吃了一惊，居然还能搬运活的德鲁迦。之后卢卡要求牧民带路到看到德鲁迦搬运的地点，牧民表示可以但要送他回家。</p>
 
 ![](https://dsm01pap004files.storage.live.com/y4m_mmAIBK6m8FKH0NmRHNkWvYZ1k-tNJqxJ2BSnS28vHUwGuDP-8dCfwu9aHhJEAFPTl3tHSYNfaZ441y8T8CYscKM7aO8KFdu463ZAevn4LYaGSZiGPob7VGb0iJMsgdH_x5iazUqUkZFURwjhb_7J2AT81UOJ8UmF7CioPHYmAeotOvqSczb4f-VkiqFT8rW?width=1267&height=714&cropmode=none)
 
