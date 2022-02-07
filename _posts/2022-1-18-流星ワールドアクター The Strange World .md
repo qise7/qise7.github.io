@@ -1,6 +1,6 @@
 ---
 layout:     post
-title:      懒狗时隔多年了，心血来潮写篇流星页游:流星ワールドアクター The Strange World的主线剧情简略吧
+title:      流星页游:流星ワールドアクター The Strange World
 subtitle:   
 date:       2022-1-17
 author:     Caren七色
