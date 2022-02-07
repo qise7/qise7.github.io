@@ -134,6 +134,39 @@ tags:
 
 ![](https://dsm01pap004files.storage.live.com/y4m1-MpbO8aqH3ugJ3P1JBQ6whBlrbJrz1KI7KmH64F6d03lR7MDpsivnONeJRzxMulcHsUyEmTCdawRNOyq6Z2mEiGCWr1GD10HOzx9wyI5LvCVrmySjRI9HwFfpLZajR1PPdPefh9GcB34QjIvoDxsRQTR_lp3PQKea1jkhxYQF6DGDxq9levnTFQjVewt2eO?width=2340&height=1080&cropmode=none)
 
+## 第八章 世界
+
+<p>通过生田的指示安排，卢卡一伙人也终于是成功驾驶奥兹(特级装甲车名字机翻)通过了海关。</p>
+
+![](https://dsm01pap004files.storage.live.com/y4mq8aNUM-5UZ5jp9gh9vws9GoFhBhbloB--u0IpvK6Kix_8wl_OB7TsTAlbRt_Dv4uWEsptEsE8qS3NVqMubzxeIXwxL-ccLW1fgtMccza9-EoScOvtv_8O7C3LFRVkU2reRW9Ffb6zDOPjfe-3NRK05GqAXbdekrbLQcfNaKLwSSuPq9T64l0cYjSutfweL3F?width=1273&height=718&cropmode=none)
+
+<p>一伙人也是纷纷出场露面说话，目前看成员就龙妹、克拉丽丝、小町、希冯和梅露主仆。期间小町也是解释了自己是主动申请出国的，还有为了第七共和国的和平这高大上原因(?</p>
+<p>检查好车内资源后，冬美刑警开始督促卢卡一行启程，并表达这次出国最大要求:生死不论要情报，以及卢卡尽快去死的重大思想。</p>
+
+![](https://dsm01pap004files.storage.live.com/y4m80zS3D83vG-szyceE_fya13qIvDT9qdnJzgiEJjyYSgd_dQjLj8A-hhhg5xcn_wnvrZIhIjLoBH62YaYAu7S98SYV7I1TOlkik1TQDIasGM5m6ilAWW8JmfrUs-aQcHVKb7ej0PsgR5jyBYg11AokrFJs3tagab2NIGBqyGLTuzU4R8kXjGmrEOcBcb5Ovrh?width=1270&height=713&cropmode=none)
+
+<p>出发三小时后，一行人便下车稍做休息，呼吸一下大自然新鲜空气，当然卢卡君这个烟鬼就是破坏大自然环境了。期间一起讨论了座位安排以及车内房间安排，途中就发现了一个被小怪追着的游牧民，正义的伙伴自然不能袖手旁观。</p>
+
+![](https://dsm01pap004files.storage.live.com/y4mLCDdUYN0hNeJGwTN5jfJ-GareA6vjCZr1YHz1S4mjFxEnUf_nMhVM3Zkn8YBq5al7BQZGOA6CPXVAROP54Z3oZuUN_BEsy45j1IdZimeBeCM6gzaYMKt_7w96mG5ciOnagvfozth8Mhd1ejHK_XmosNmcIhLBEZw3fybKHeJHchKfT-BGWYRsSTGo3MSJtoP?width=1258&height=717&cropmode=none)
+
+<p>完事后刚想询问牧民情报，突然之间地震了，在刚刚牧民逃跑那个方向，居然出现了5只野生的德鲁迦。卢卡当机立断指挥全部人员上车。全员上车后，因为不够熟悉奥兹，手忙脚乱的，也不知道有什么武器可以应对，希冯直接站出来要自己去争取时间。シフォン マクドゥーガル，进攻！卢卡和哈鲁松在停车后也随即跟上，援护希冯</p>
+
+![](https://dsm01pap004files.storage.live.com/y4mcmqqaHhHxv9ty5wZNllXTgPazPRgBlZ269j00HQ4rEokyEkP5yEnCwVez2Oy9nE9L-1_g-Hl4HQhXlfrpeW2WLswc4TWNtVlelU_6mILu_dIZU7N_xi97bQZ0pY4ebNJMT42qlKTOKL6QhYYmPxI12VUGaD0ilESo3FkW2PUZAaQpAD51DSyHo2a1yKFM7z8?width=2340&height=1080&cropmode=none)
+
+<p>在希冯的大活跃下，成功解决了这次状况，战斗人员安全上车。再次想询问情报，被告知牧民已经晕倒，梅露在看护。众人只得启程边了解奥兹操作边等待牧民苏醒。</p>
+<p>与苏醒的牧民交流情报，卢卡没有透露自己一行是第七共和国的。</p>
+
+![](https://dsm01pap004files.storage.live.com/y4mv2Ne5fdPwZ7R6ABJ1XQik2G80PgEHGVJXyQ36fI62sZdLQb_fglg09uRkiN4YKsovh00zxINz3j2DqKYf4RkZ58gN2E3SK6OrjaUimWIfIJKA5ElFwWaeOgbKS0TXt4CQKgDO_eiOq7QUpeVCghdDeh5vEYd7DT82UYsh1hDMLVJ1VsM8Ect9W7k97_FSU3H?width=1275&height=709&cropmode=none)
+
+<p>牧民透露德鲁迦是被某些人通过比奥兹更大的车来搬运，让众人吃了一惊，居然还能搬运活的德鲁迦。之后卢卡要求牧民带路到看到德鲁迦搬运的地点，牧民表示可以但要送他回家。</p>
+
+![](https://dsm01pap004files.storage.live.com/y4m_mmAIBK6m8FKH0NmRHNkWvYZ1k-tNJqxJ2BSnS28vHUwGuDP-8dCfwu9aHhJEAFPTl3tHSYNfaZ441y8T8CYscKM7aO8KFdu463ZAevn4LYaGSZiGPob7VGb0iJMsgdH_x5iazUqUkZFURwjhb_7J2AT81UOJ8UmF7CioPHYmAeotOvqSczb4f-VkiqFT8rW?width=1267&height=714&cropmode=none)
+
+<p>期间众人也是讨论起了搬运德鲁迦情报的可行性，最终讨论结果猜想是比第七共和国更先进的科技力量操控的，被比自己国家更强大的科技实力瞄准的后果，让一行人不禁寒颤。最后也是放弃猜测开始熟悉起奥兹车上配置的武器。途中小町一脸凝重过来说，又遇到了德鲁迦，这次是3只。   第八章结束</p>
+
+![](https://dsm01pap004files.storage.live.com/y4mHktC9mi8rf8SJK9A3MLoG0FMR843KPf6qHHd7CVC-7bAdTdTP9aT9afbAjNA0Dzb9C0eb68upV35W6OVt5u5tZ-gTMrIROm4YCaDjRkc5E5w-Croie1KWZ7AzSe3QfIuuJRddAaYtaX4G5DXoep_VyZY6aExHGfZ2I4hA-m0TrICY-Jzoyk1KUoKTqUwpnxA?width=1274&height=715&cropmode=none)
+
+
 <p>我个人观感还是可以的，op做得也还行，如果不是页游我觉得也算正篇op了。希望衣笠能尽快填好第三部和页游主线。</p>
 
 >流星bd准备上架steam了，支持官中，有钱的朋友支持一下吧！！！
